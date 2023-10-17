@@ -1,0 +1,1 @@
+[The Convergence of AI and Creativity: Introducing Ghostwriter (ubisoft.com)](https://news.ubisoft.com/en-us/article/7Cm07zbBGy4Xml6WgYi25d/the-convergence-of-ai-and-creativity-introducing-ghostwriter?utm_source=narrativ&nrtv_cid=.nrtv_plchldr.)
